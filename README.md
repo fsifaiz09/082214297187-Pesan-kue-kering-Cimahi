@@ -8,5 +8,5 @@ Dengan berbagai keunggulannya, kue kering Cimahi terus berkembang dan semakin di
 Kontak : 082214297187
 
 https://kuekeringlezatkhascimahi.blogspot.com/ 
-
+https://baskadia.com/post/8jyfg
 https://kuekeringlezatkhascimahi.blogspot.com/2024/12/kue-kering-premium-cimahi-terbaik-kue.html
